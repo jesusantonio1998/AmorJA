@@ -1,2 +1,0 @@
-# AmorJA
- github pague
